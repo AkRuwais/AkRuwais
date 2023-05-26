@@ -46,4 +46,4 @@
 </p>
 
 ---
-⭐️ From [sudnyeshtalekar](https://github.com/sudnyeshtalekar)
+⭐️ From [Ak Ruwais](https://github.com/AkRuwais)
